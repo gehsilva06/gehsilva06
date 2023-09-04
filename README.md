@@ -6,4 +6,4 @@
 - tenho 17anos😵‍💫
 - amo ajuda os animais que precisa🐶
 - so uma pessoa muito familia👪
---->
+-->
